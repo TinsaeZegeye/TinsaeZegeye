@@ -27,7 +27,6 @@
 
 ### 📫 How to Reach Me
 📧 **Email:** [tinsaezegeye@gmail.com](mailto:tinsaezegeye@gmail.com)  
-💼 **LinkedIn:** [linkedin.com/in/tinsaez7](https://linkedin.com/in/tinsaez7)
 
 ---
 
